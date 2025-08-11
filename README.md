@@ -1,2 +1,2 @@
 <p align="center">
-<img alt="#emily the strange from Old Internet Icons" class="J9AiF" height="96" src="https://64.media.tumblr.com/29922dce2c506fa4ca1724a437ed1811/cde9b1781c4340f4-55/s100x200/424a0e9fb433fb87a9ccf862eb95d858c04b7477.gifv" width="96">
+<img style="display: block;-webkit-user-select: none;margin: auto;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://64.media.tumblr.com/84450b2a1b3c8bfba5542224327c1a3b/11d2e8607d22c589-9d/s1280x1920/118dffd966a32a7b9fd10c291fa3561ef255c4d1.pnj">
