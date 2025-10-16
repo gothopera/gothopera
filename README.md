@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="600" height="500" alt="image" img src="https://files.catbox.moe/8uy8b8.png">
+<img width="300" height="400" alt="image" img src="https://files.catbox.moe/vyduz3.png">
 <p align="center">
  <sub>
 <a href="https://horrific-necktie.carrd.co" rel="nofollow">carrd</a>
