@@ -14,3 +14,17 @@ any pronouns ⠀ '03 ⠀ taken by a fag
  ⠀ 
 <a href="https://hungry-bug.straw.page">straw</a>
  </sub>
+
+
+</details>
+<div align="center" dir="auto">
+ <details open="">
+<summary> ⠀ ⠀   </summary>
+   
+   <br>
+<p align="center" dir="auto">
+<strong>basic dni criteria</strong> + tcc, btd / tcoaal fans ( and anything similar )
+  <br> before u freak out i use slurs i can reclaim
+
+</p>
+</details>
