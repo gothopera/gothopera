@@ -14,4 +14,3 @@ any pronouns ⠀ '03 ⠀ taken by a fag
  ⠀ 
 <a href="https://hungry-bug.straw.page">straw</a>
  </sub>
- </dir>
