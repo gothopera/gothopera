@@ -19,7 +19,7 @@ any pronouns ⠀ '03 ⠀ taken by a fag
 </details>
 <div align="center" dir="auto">
  <details closed="">
-<summary> ⠀ ⠀   </summary>
+<summary> ⠀</summary>
    
    <br>
 <p align="center" dir="auto">
