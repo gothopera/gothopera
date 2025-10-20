@@ -27,4 +27,5 @@ any pronouns ⠀ '03 ⠀ taken by a fag
   <br> before u freak out i use slurs i can reclaim
 
 </p>
+<a href="https://guns.lol/yourscruelly" rel="nofollow">♡</a>
 </details>
