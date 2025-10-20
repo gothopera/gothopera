@@ -3,7 +3,7 @@
 <img width="300" height="400" alt="image" img src="https://files.catbox.moe/vyduz3.png">
 <p align="center">
  <sub>
-any pronouns ⠀ '03 ⠀ taken by a fag
+any pronouns ⠀ <strong>'03</strong> ⠀ taken by a fag
  </sub>
 
  <p align="center">
