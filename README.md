@@ -28,4 +28,6 @@ any pronouns ⠀ <strong>'03</strong> ⠀ taken by a fag
 
 </p>
 <a href="https://guns.lol/yourscruelly" rel="nofollow">♡</a>
+ ⠀ 
+<a href="https://canis-canem-edit.straw.page" rel="nofollow">!!</a>
 </details>
