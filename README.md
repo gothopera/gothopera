@@ -28,10 +28,10 @@ any pronouns ⠀ '03 ⠀ taken by a fag
 
 </p>
 <sub>
-<a href="https://guns.lol/yourscruelly" rel="nofollow">i</a>
+<a href="https://guns.lol/yourscruelly" rel="nofollow">i.</a>
  ⠀ 
-<a href="https://canis-canem-edit.straw.page" rel="nofollow">ii</a>
+<a href="https://canis-canem-edit.straw.page" rel="nofollow">ii.</a>
  ⠀ 
-<a href="https://rentry.co/canis-canem-edit" rel="nofollow">iii</a>
+<a href="https://rentry.co/canis-canem-edit" rel="nofollow">iii.</a>
 </sub>
 </details>
