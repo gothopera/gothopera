@@ -23,7 +23,6 @@ any pronouns ⠀ '03 ⠀ taken by a fag
    
    <br>
 <p align="center" dir="auto">
-<strong>basic dni criteria</strong> + selfcest shippers yall weird me out, tcc, btd / tcoaal fans ( and anything similar )
   <br> before u freak out i use slurs i can reclaim
 
 </p>
