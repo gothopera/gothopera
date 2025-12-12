@@ -20,8 +20,7 @@ any pronouns ⠀ '03 ⠀ taken by a fag
 <div align="center" dir="auto">
  <details closed="">
 <summary></summary>
-   
-   <br>
+
 <p align="center" dir="auto">
   <br> before u freak out i use slurs i can reclaim
 
