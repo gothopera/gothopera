@@ -22,7 +22,7 @@ happily taken by a fag
 <summary></summary>
   
 <sub>
-ac : mcksnn on tumblr
+art credit : mcksnn on tumblr
  </sub>
 </p>
 <sub>
