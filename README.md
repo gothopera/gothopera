@@ -1,9 +1,9 @@
 
 <p align="center">
-<img width="300" height="400" alt="image" img src="https://files.catbox.moe/vyduz3.png">
+<img width="300" height="400" alt="image" img src="https://files.catbox.moe/9dycm8.png">
 <p align="center">
  <sub>
-any pronouns ⠀ '03 ⠀ taken by a fag
+happily taken by a fag
  </sub>
 
  <p align="center">
