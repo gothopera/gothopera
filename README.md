@@ -20,7 +20,10 @@ happily taken by a fag
 <div align="center" dir="auto">
  <details closed="">
 <summary></summary>
-
+  
+<sub>
+ac : mcksnn on tumblr
+ </sub>
 </p>
 <sub>
 <a href="https://guns.lol/yourscruelly" rel="nofollow">i.</a>
