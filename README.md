@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="300" height="400" alt="image" img src="https://files.catbox.moe/9dycm8.png">
+<img width="300" height="400" alt="image" img src="">
 <p align="center">
  <sub>
 happily taken by a fag
