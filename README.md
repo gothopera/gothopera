@@ -33,5 +33,5 @@ art credit : del-ete-a on tumblr
 <a href="https://rentry.co/canis-canem-edit" rel="nofollow">iii.</a>
 </sub>
 </p>
-<img width="300" height="400" alt="image" img src="https://files.catbox.moe/md1s40.png">
+<img width="200" height="400" alt="image" img src="https://files.catbox.moe/md1s40.png">
 </details>
