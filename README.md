@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="300" height="400" alt="image" img src="https://files.catbox.moe/q6v9ts.png">
+<img width="300" height="400" alt="image" img src="https://files.catbox.moe/3sfma6.png">
 <p align="center">
  <sub>
 happily taken by a fag
@@ -22,7 +22,7 @@ happily taken by a fag
 <summary></summary>
   
 <sub>
-art credit : mcksnn on tumblr
+art credit : del-ete-a on tumblr
  </sub>
 </p>
 <sub>
@@ -32,4 +32,6 @@ art credit : mcksnn on tumblr
  ⠀ 
 <a href="https://rentry.co/canis-canem-edit" rel="nofollow">iii.</a>
 </sub>
+</p>
+<img width="300" height="400" alt="image" img src="https://files.catbox.moe/md1s40.png">
 </details>
