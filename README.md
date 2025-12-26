@@ -22,8 +22,18 @@ happily taken by a fag
 <summary></summary>
   
 <sub>
-art credit : del-ete-a on tumblr
+<em>art credit : del-ete-a on tumblr</em>
  </sub>
+
+</p>
+ mostly offtab
+ </br>
+ <em>( if i dont reply to whispers leave a message on my ata / draw something on my straw i love to see them!! )</em>
+ </br>
+ usually hanging out above library on safe server, wandering on 18+
+ </br>
+ read carrd for more info ig
+ 
 </p>
 <sub>
 <a href="https://guns.lol/yourscruelly" rel="nofollow">i.</a>
