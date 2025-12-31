@@ -32,7 +32,7 @@ happily taken by a fag
  </br>
  usually hanging out above library on safe server, wandering on 18+
  </p>
- 🟢 : idle / mainly used ⠀ ⛔ : busy / not in the mood to talk
+ 🟢 : idle - mainly used ⠀ ⛔ : busy / not in the mood to talk
  
 </p>
 <sub>
