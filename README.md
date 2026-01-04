@@ -28,7 +28,7 @@ happily taken by a fag
 </p>
  mostly offtab
  </br>
- <em>( if i dont reply to whispers leave a message on my ata / draw something on my straw i love to see them!! )</em>
+ <em>( if i dont reply to whispers leave a message on my ata / draw something on my straw,, i love to see them!! )</em>
  </br>
  usually hanging out above library on safe server, wandering on 18+
  </p>
