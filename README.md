@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="300" height="400" alt="image" img src="https://files.catbox.moe/3sfma6.png">
+<img width="300" height="400" alt="image" img src="https://64.media.tumblr.com/4e34db3afaad6e3a7f7d403bf29a3a4f/46a1c103d3bc9c71-36/s540x810/11180a3aac17a4ba39ccde8205c77c917475e0e0.gifv">
 <p align="center">
  <sub>
 happily taken by a fag
@@ -21,10 +21,6 @@ happily taken by a fag
  <details closed="">
 <summary></summary>
   
-<sub>
-<em>art credit : del-ete-a on tumblr</em>
- </sub>
-
 </p>
  mostly offtab
  </br>
@@ -34,14 +30,4 @@ happily taken by a fag
  </p>
  🟢 : idle, mainly used ⠀ ⛔ : busy / not in the mood to talk
  
-</p>
-<sub>
-<a href="https://guns.lol/yourscruelly" rel="nofollow">i.</a>
- ⠀ 
-<a href="https://canis-canem-edit.straw.page" rel="nofollow">ii.</a>
- ⠀ 
-<a href="https://rentry.co/canis-canem-edit" rel="nofollow">iii.</a>
-</sub>
-</p>
-<img width="200" height="400" alt="image" img src="https://files.catbox.moe/md1s40.png">
 </details>
