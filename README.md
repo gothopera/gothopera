@@ -22,7 +22,7 @@ happily taken by a fag
 <div align="center" dir="auto">
  <details closed="">
 <summary></summary>
-  
+   ⠀ 
 </p>
  mostly offtab
  </br>
