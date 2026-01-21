@@ -1,7 +1,7 @@
    ⠀ 
 
 <p align="center">
-<img width="300" height="400" alt="image" img src="https://64.media.tumblr.com/4e34db3afaad6e3a7f7d403bf29a3a4f/46a1c103d3bc9c71-36/s540x810/11180a3aac17a4ba39ccde8205c77c917475e0e0.gifv">
+<img width="300" height="400" alt="image" img src="https://files.catbox.moe/nszk6x.png">
 <p align="center">
  <sub>
 happily taken by a fag
@@ -23,7 +23,7 @@ happily taken by a fag
  <details closed="">
 <summary></summary>
    ⠀ 
- <sub>acr : theforeignbread</sub>
+ <sub>acr : yutian333553</sub>
     
 </p>
  mostly offtab
