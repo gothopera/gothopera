@@ -37,6 +37,6 @@ $\color{#AC3784}{happily ⠀taken ⠀by ⠀a ⠀fag}$
  </p>
  🟢 : idle, mainly used ⠀ ⛔ : busy / not in the mood to talk ( unless friends )
  </p>
-  ur strawpage is not safe from me I WILL draw on it
+  ur strawpage is not safe from me, I WILL draw on it
  
 </details>
