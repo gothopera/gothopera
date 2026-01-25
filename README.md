@@ -4,7 +4,7 @@
 <img width="150" height="150" alt="image" img src="https://64.media.tumblr.com/4c9e7bc3a52371975b03d0e43290f372/bc5157513db37073-40/s100x200/f55a83c58004bfcfc5cd80b9fd967933ada27c61.pnj">
 <p align="center">
  <sub>
-happily taken by a fag
+$\color{#AC3784}{happily ⠀taken ⠀by ⠀a ⠀fag}$
  </sub>
 
  <p align="center">
