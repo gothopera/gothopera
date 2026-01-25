@@ -31,7 +31,10 @@ $\color{#AC3784}{happily ⠀taken ⠀by ⠀a ⠀fag}$
  <em>( leave a message on my ata / draw something on my straw,, i love to see them!! )</em>
  </br>
  usually hanging out above library on safe server, wandering on 18+
+ 
  </p>
  🟢 : idle, mainly used ⠀ ⛔ : busy / not in the mood to talk ( unless friends )
+ </p>
+  ur strawpage is not safe from me I WILL draw on it
  
 </details>
