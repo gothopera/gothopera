@@ -35,5 +35,3 @@ $\color{#AC3784}{happily ⠀taken ⠀by ⠀a ⠀fag}$
  🟢 : idle, mainly used ⠀ ⛔ : busy / not in the mood to talk ( unless friends )
  
 </details>
-    
-    
