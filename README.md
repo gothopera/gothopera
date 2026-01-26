@@ -41,3 +41,9 @@ $\color{#C83F9C}{happily ⠀taken ⠀by ⠀a ⠀fag}$
   ur strawpage is not safe from me, I WILL draw on it
  
 </details>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=sp7hgm5ycpgykoec4o2pfs1ff&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=2C2CFF&bar_color_cover=false">
+  </a>
+</p>
