@@ -8,7 +8,7 @@ $\color{#C83F9C}{happily ⠀taken ⠀by ⠀a ⠀fag}$
 </sub>
  <p align="center">
  <sub>
-<a href="https://rentry.co/MisetaniBox" rel="nofollow">rentry</a>
+<a href="https://rentry.co/valentine-bluffs" rel="nofollow">rentry</a>
    ⠀ 
 <a href="https://crossofloss.atabook.org" rel="nofollow">ata</a>
  ⠀ 
