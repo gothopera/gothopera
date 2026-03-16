@@ -26,16 +26,16 @@ $\color{#C83F9C}{happily ⠀taken ⠀by ⠀a ⠀fag}$
  <sub>acr : sleepwalk-station</sub>
     
 </p>
- mostly offtab
- </br>
- <em>( leave a message on my ata / draw something on my straw,, i love to see them!! )</em>
- </br>
+<div align="left" dir="auto">
+ mostly offtab ( leave a message on my ata / draw something on my straw,, i love to see them!! )
+   <br>
  u can find me both on safe and 18+ server
  
  </p>
- 🟢 : idle, mainly used ⠀ ⛔ : busy / not in the mood to talk ( unless friends )
- </p>
-  ur strawpage is not safe from me,, i WILL draw on it
- 
+ <div align="right" dir="auto">
+ online : idle, mainly used
+ <br>
+ busy : well obviously it means im busy or just not in the mood to talk ( unless i know u )
+
 </details>
 
