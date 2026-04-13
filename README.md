@@ -22,9 +22,7 @@ $\color{#EF8119}{. . .}$
  <details closed="">
 <summary></summary>
    ⠀ 
-    
- <sub>acr : sleepwalk-station</sub>
-    
+  
 </p>
 <div align="left" dir="auto">
  mostly offtab ( leave a message on my ata / draw something on my straw,, i love to see them!! )
