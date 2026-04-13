@@ -1,10 +1,10 @@
    ⠀ 
 
 <p align="center">
-<img width="150" height="150" alt="image" img src="https://64.media.tumblr.com/4c9e7bc3a52371975b03d0e43290f372/bc5157513db37073-40/s100x200/f55a83c58004bfcfc5cd80b9fd967933ada27c61.pnj">
+<img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25">
 <p align="center">
 <sub>
-$\color{#C83F9C}{rmking ⠀this ⠀soon}$
+$\color{#EF8119}{. . .}$
 </sub>
  <p align="center">
  <sub>
@@ -36,6 +36,9 @@ $\color{#C83F9C}{rmking ⠀this ⠀soon}$
  online : idle, mainly used
  <br>
  busy : well obviously it means im busy or just not in the mood to talk ( unless i know u )
+    
+ <p align="center">
+ <img width="200" height="200" alt="image" img src="https://icargus.carrd.co/assets/images/image02.png?v=ba2c5e25">
 
 </details>
 
