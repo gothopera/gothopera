@@ -1,7 +1,7 @@
    ⠀ 
 
 <p align="center">
-<img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25">
+<img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25" title="whadda ya lookin' at, huh?">
 <p align="center">
 <sub>
 $\color{#EF8119}{"⠀Oh,⠀well.⠀Let⠀me⠀go⠀in⠀and⠀say⠀hi.⠀"}$
