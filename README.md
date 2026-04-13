@@ -24,7 +24,7 @@ $\color{#EF8119}{"⠀Oh,⠀well.⠀Let⠀me⠀go⠀in⠀and⠀say⠀hi.⠀"}$
    ⠀ 
   
 </p>
-<div align="left" dir="auto">
+<div align="center" dir="auto">
  mostly offtab ( leave a message on my ata,
    <br>
    draw something on my straw,, i love to see them!! )
@@ -32,7 +32,7 @@ $\color{#EF8119}{"⠀Oh,⠀well.⠀Let⠀me⠀go⠀in⠀and⠀say⠀hi.⠀"}$
  u can find me both on safe and 18+ server
  
  </p>
- <div align="right" dir="auto">
+ <div align="center" dir="auto">
  online : idle, mainly used
  <br>
  busy : well obviously it means im busy
