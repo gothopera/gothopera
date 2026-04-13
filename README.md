@@ -4,7 +4,7 @@
 <img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25" title="whadda ya lookin' at, huh?">
 <p align="center">
 <sub>
-<code>" Oh well. Let me go in and say hi. "</code>
+<code>" Oh well, let me go in and say hi. "</code>
 </sub>
  <p align="center">
  <sub>
