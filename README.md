@@ -4,7 +4,7 @@
 <img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25">
 <p align="center">
 <sub>
-$\color{#EF8119}{. . .}$
+$\color{#EF8119}{"⠀Oh,⠀well.⠀Let⠀me⠀go⠀in⠀and⠀say⠀hi.⠀"}$
 </sub>
  <p align="center">
  <sub>
