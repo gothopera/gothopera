@@ -1,7 +1,7 @@
    ⠀ 
 
 <p align="center">
-<img width="300" height="330" alt="image" img src="https://icargus.carrd.co/assets/images/image05.png?v=ba2c5e25" title="whadda ya lookin' at, huh?">
+<img width="400" height="250" alt="image" img src="https://64.media.tumblr.com/5dcc591c4e9c47a31ea7b401f1cc491f/c0ea940a8f3eb8e7-74/s1280x1920/a1c6a2ebfc0871ac00ad8a879ed57e48ec26f5c8.gifv" title="whadda ya lookin' at, huh?">
 <p align="center">
 <sub>
 <code>" Oh well, let me go in and say hi. "</code>
@@ -39,8 +39,5 @@
     <br>
 or just not in the mood to talk ( unless i know u )
     
- <p align="center">
- <img width="200" height="200" alt="image" img src="https://icargus.carrd.co/assets/images/image02.png?v=ba2c5e25">
-
 </details>
 
