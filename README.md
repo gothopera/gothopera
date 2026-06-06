@@ -38,6 +38,4 @@
  busy : well obviously it means im busy
     <br>
 or just not in the mood to talk ( unless i know u )
-    
-</details>
 
