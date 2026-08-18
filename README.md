@@ -1,11 +1,9 @@
    ⠀ 
 
 <p align="center">
-<img width="400" height="250" alt="image" img src="https://64.media.tumblr.com/2fba12d8a862e0abf07c30780d3faa7e/93344593207d59b1-27/s400x600/443fdbd443e6f9b03c3320ea2ce024629d44e7e3.gifv" title="cr : minion-fever on tumblr !">
+<img width="400" height="250" alt="image" img src="https://icargus.carrd.co/assets/images/image02.jpg?v=7de7ea0e" title="cr : my friend axell !">
 <p align="center">
-<sub>
-<code>" There is no amount of pain that could ever make me regret knowing you. "</code>
-</sub>
+
  <p align="center">
  <sub>
 <a href="https://rentry.co/eatualive">rentry.</a>
