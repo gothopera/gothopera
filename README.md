@@ -1,7 +1,7 @@
    ⠀ 
 
 <p align="center">
-<img width="400" height="250" alt="image" img src="https://icargus.carrd.co/assets/images/image02.jpg?v=7de7ea0e" title="cr : my friend axell !">
+<img width="400" height="250" alt="image" img src="https://icargus.carrd.co/assets/images/image02.jpg?v=7de7ea0e" title="cr : my friend axell + pfp by me !">
 <p align="center">
 
  <p align="center">
