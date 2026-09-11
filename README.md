@@ -1,7 +1,7 @@
    ⠀ 
 
 <p align="center">
-<img width="400" height="500" alt="image" img src="https://icargus.carrd.co/assets/images/image01.jpg?v=38247846" title="playing dead">
+<img width="400" height="500" alt="image" img src="https://icargus.carrd.co/assets/images/image01.jpg?v=38247846" title="nel furmanski from cemetery creeps">
 <p align="center">
 
  <p align="center">
