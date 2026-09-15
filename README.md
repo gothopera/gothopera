@@ -6,8 +6,7 @@
 
  <p align="center">
  <sub>
-<a href="https://gothopera.carrd.co">carrd.</a>
-       ⠀ 
+   ⠀ 
 <a href="https://rentry.co/eatualive">rentry.</a>
    ⠀ 
 <a href="https://crossofloss.atabook.org">ata.</a>
